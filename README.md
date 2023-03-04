@@ -1,6 +1,6 @@
 <h1>Seja bem-vindo!👋😄</h1>
 
-Sou André Fernandes Bispo, tenho 23 anos e sou bacharel em Engenharia de Software. Desde criança tive um grande contato com a computação e sempre sonhei em trabalhar com isso um dia, bom... aqui estou, tornando um sonho realidade e amando cada momento que estou vivendo.⚡ 
+Sou André Fernandes Bispo, tenho 25 anos e sou bacharel em Engenharia de Software. Desde criança tive um grande contato com a computação e sempre sonhei em trabalhar com isso um dia, bom... aqui estou, tornando um sonho realidade e amando cada momento que estou vivendo.⚡ 
 <br><br>
 
 Entre em contato😉:<br>
